@@ -1,2 +1,0 @@
-# TOWERDEFENSE01
-kojin
